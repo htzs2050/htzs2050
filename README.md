@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+一个人的一生只能活一次，
+所以我想去看未见过的世界，去发现没有发现的自己
+我还想送那位心上人一朵兰花，
+爱慕她的性格
+然后和她一起变好
